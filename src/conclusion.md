@@ -1,5 +1,8 @@
 # Conclusion
 
+Chapter 11: Conclusion
+======================
+
 In this book, we have explored the art of giving and receiving constructive feedback in the workplace. From understanding the importance of feedback to developing effective communication skills, each chapter has presented key strategies for mastering the art of feedback. In this final chapter, we will recap these strategies and provide some final thoughts and advice.
 
 Recap of Key Strategies for Giving and Receiving Constructive Feedback
