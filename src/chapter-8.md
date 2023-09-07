@@ -1,5 +1,3 @@
-Chapter 8: Creating a Culture of Feedback
-=========================================
 
 Creating a culture of feedback in the workplace can promote growth, development, and collaboration. In this chapter, we'll explore strategies for creating a culture of feedback.
 

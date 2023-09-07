@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-===========================================================================
 
 Understanding the power of feedback is essential for giving and receiving effective feedback in the workplace. In this chapter, we'll explore strategies for addressing limiting beliefs that can hinder the effectiveness of feedback.
 

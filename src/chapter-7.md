@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Feedback
-==========================================
 
 Resistance to feedback can be a significant obstacle in creating a successful feedback program. In this chapter, we'll explore strategies for managing resistance to feedback.
 

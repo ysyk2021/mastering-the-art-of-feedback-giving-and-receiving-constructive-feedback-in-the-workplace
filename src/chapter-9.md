@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Feedback
-=============================================
 
 Technology has revolutionized the way we communicate, and it can also enhance the feedback experience in the workplace. In this chapter, we'll explore how to leverage technology for feedback.
 

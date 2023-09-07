@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-========================================================================================
 
 Developing a feedback mindset is essential for giving and receiving effective feedback in the workplace. In this chapter, we'll explore strategies for utilizing positive self-talk and visualization to develop a feedback mindset.
 

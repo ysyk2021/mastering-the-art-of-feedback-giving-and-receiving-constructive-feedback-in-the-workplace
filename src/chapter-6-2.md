@@ -1,5 +1,3 @@
-Developing Strategies for Giving and Receiving Constructive Feedback
-================================================================================================================
 
 Developing strategies for giving and receiving constructive feedback is essential for developing effective feedback skills in the workplace. In this chapter, we'll explore strategies for developing your feedback skills.
 

@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Feedback is an essential component of personal and professional growth. In this book, we will explore the art of giving and receiving constructive feedback in the workplace. This chapter will cover the importance of feedback, common misconceptions about feedback, and the benefits of giving and receiving constructive feedback.
 

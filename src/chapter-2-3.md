@@ -1,4 +1,3 @@
-# Assessing Your Personal Approach to Feedback
 
 In this chapter, we will explore the importance of self-awareness and personal reflection when it comes to giving and receiving constructive feedback in the workplace. Understanding your own approach to feedback is crucial for fostering effective communication and professional growth.
 

@@ -1,5 +1,3 @@
-Finding Ways to Deliver and Receive Constructive Feedback
-=====================================================================================================
 
 Maximizing your feedback skills is essential for giving and receiving effective feedback in the workplace. In this chapter, we'll explore strategies for finding ways to deliver and receive constructive feedback.
 

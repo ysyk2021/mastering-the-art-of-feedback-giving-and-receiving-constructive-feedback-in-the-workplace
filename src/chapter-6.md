@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Feedback Skills
-==========================================
 
 Developing your feedback skills is essential for giving and receiving constructive feedback in the workplace. In this chapter, we'll explore strategies for developing your feedback skills.
 

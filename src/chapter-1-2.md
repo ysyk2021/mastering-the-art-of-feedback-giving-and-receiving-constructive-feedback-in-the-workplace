@@ -1,5 +1,3 @@
-Common Misconceptions About Feedback
-=============================================================
 
 Feedback is an important tool for personal and professional growth, but there are several common misconceptions about feedback that can make it challenging to give and receive. In this chapter, we'll explore some of these misconceptions and help you understand why they're not true.
 

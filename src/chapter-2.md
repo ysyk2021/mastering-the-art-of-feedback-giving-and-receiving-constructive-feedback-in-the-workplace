@@ -1,5 +1,3 @@
-Chapter 2: Defining Feedback
-============================
 
 Feedback is an essential tool for personal and professional growth. In this chapter, we'll explore the definition of feedback, the science behind it, and how to assess your personal approach to feedback.
 

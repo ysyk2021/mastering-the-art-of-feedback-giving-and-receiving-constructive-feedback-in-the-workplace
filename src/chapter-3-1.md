@@ -1,5 +1,3 @@
-Techniques for Cultivating a Feedback Mindset
-=======================================================================================
 
 Developing a feedback mindset is essential for giving and receiving effective feedback in the workplace. In this chapter, we'll explore techniques for cultivating a feedback mindset.
 

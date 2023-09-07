@@ -1,5 +1,3 @@
-Encouraging Proactive Feedback Across the Organization
-=================================================================================================
 
 In this chapter, we'll explore how to create a culture of feedback that encourages proactive feedback across the organization. A culture of feedback is one in which feedback is not only accepted but also actively sought out and used to drive growth and improve performance.
 

@@ -1,5 +1,3 @@
-Chapter 4: Understanding the Power of Feedback
-==============================================
 
 Feedback is a powerful tool for personal and professional growth, but it's often underutilized in the workplace. In this chapter, we'll explore the power of feedback.
 

@@ -1,6 +1,3 @@
-# Understanding the Science Behind Feedback
-
-## Introduction
 
 In this chapter, we will delve into the science behind feedback and explore the psychological and neurological processes that occur when giving and receiving constructive feedback in the workplace. Understanding the underlying mechanisms will enable us to enhance the effectiveness of our feedback practices and foster a positive and growth-oriented work environment.
 

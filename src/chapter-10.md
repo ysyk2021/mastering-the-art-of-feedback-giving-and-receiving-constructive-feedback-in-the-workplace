@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 In this chapter, we'll explore how to measure results and learn from experience in giving and receiving constructive feedback in the workplace. We'll discuss tracking progress and measuring results, reflection and self-evaluation, continuous learning and improvement, and adapting to changes in the workplace.
 

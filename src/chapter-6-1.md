@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Feedback
-==============================================================================================
 
 Developing your feedback skills is essential for giving and receiving effective feedback in the workplace. In this chapter, we'll explore the principles of effective feedback that can help you become a more skilled feedback provider.
 

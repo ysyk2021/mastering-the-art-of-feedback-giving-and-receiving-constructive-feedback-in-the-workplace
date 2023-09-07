@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Feedback Skills
-==========================================
 
 In this chapter, we'll explore how to maximize your feedback skills in giving and receiving constructive feedback in the workplace. We'll discuss identifying opportunities, finding ways to deliver and receive feedback, communicating clearly and effectively, and fostering trust and respect.
 

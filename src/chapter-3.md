@@ -1,5 +1,3 @@
-Chapter 3: Developing a Feedback Mindset
-========================================
 
 Developing a feedback mindset is essential for giving and receiving constructive feedback in the workplace. In this chapter, we'll explore strategies for cultivating a feedback mindset.
 
